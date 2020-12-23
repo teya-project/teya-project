@@ -1,4 +1,4 @@
-# Hi there
+# Hi there 👋 I'm Teya
 
 - 🇷🇺 I live in Russia, Saint Petersburg
 - 🤖 I'm currently freelancer
